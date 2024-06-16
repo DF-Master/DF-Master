@@ -25,3 +25,5 @@ Wechat: [jiang_yida](https://img.imgdb.cn/item/602a8bea3ffa7d37b36ee8a8.png)
 QQ: [476540183](https://img.imgdb.cn/item/602a8cdc3ffa7d37b36f4256.png)
 
 E-mail: jiangyida@pku.edu.cn
+
+Twitter: https://x.com/DFMaster16
